@@ -1,1 +1,1 @@
-https://github.com/evgeniyarom/evgeniyarom.github.io
+https://github.com/evgeniyarom/evgeniyarom.github.io/rsschool-cv/cv
